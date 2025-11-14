@@ -5,6 +5,6 @@ supporter beggars DNI. i do not help anyone but close friends with build limits,
 
 always iwc,
 
-i usually dont mind c+h but only if im alone !!
+big destruction duo fan,, if im alone and in a manepear cos PLS c+h with me btw i love c+h in my manepear
 
 im taken so pls dotn ship me with my friendss,,
